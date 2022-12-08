@@ -1,4 +1,4 @@
-• Hi all, I’m VanhaJH. I’m a very junior C++ programmer.
+• Hi all, I’m Vanha. I’m a very junior C++ programmer.
 
 • I’m interested in C++ coding and JS.
 
