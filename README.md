@@ -8,4 +8,4 @@
 
 ¯\_(ツ)_/¯
 
-With love and beer, your Vanha.
+With love and beer, your 7D7.
